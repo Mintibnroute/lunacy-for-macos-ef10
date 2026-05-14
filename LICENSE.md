@@ -1,4 +1,4 @@
-# 
+# Enhance Lunacy for macOS with professional Lunacy for macOS Filter | smart objects + version history, the #1 filter. Includes smart objects and version history for a smoother and
 
 
 
